@@ -14,3 +14,6 @@ Bekannt wurde er vor allem unter seinem Kuenstlernamen Bud Spencer an der Seite 
 
 
 > Was is' mit de Kohl'n?
+
+
+<img src="https://upload.wikimedia.org/wikipedia/it/7/73/CarloPedersoliItalia.jpg"/>
