@@ -14,4 +14,3 @@ Bekannt wurde er vor allem unter seinem Kuenstlernamen Bud Spencer an der Seite 
 
 
 > "Was is' mit de Kohl'n??"
-> "Wenn du denkst, du hast 'nen Dummen vor dir, bist du an der richtigen Adresse!"
