@@ -11,3 +11,6 @@ Bekannt wurde er vor allem unter seinem Kuenstlernamen Bud Spencer an der Seite 
 * gutmuetig
 * ist immer hungrig
 * wird grantig, wenn man ihm ans Essen will
+
+
+> Was is' mit de Kohl'n?
